@@ -16,3 +16,8 @@ image
 
 
 ![5](https://user-images.githubusercontent.com/73145010/225903489-ea96d098-e416-4137-a0f9-883f8e229582.JPG)
+
+
+![P-1](https://user-images.githubusercontent.com/73145010/225907115-2852679c-6064-466e-bd70-e2bd3404153b.JPG)
+![C-2](https://user-images.githubusercontent.com/73145010/225907117-1c6b7460-61fe-44f0-9d15-9d2d6fd0f92d.JPG)
+![C-1](https://user-images.githubusercontent.com/73145010/225907118-cfb4f62d-e97c-485e-8d27-b3719bed6d6f.JPG)
